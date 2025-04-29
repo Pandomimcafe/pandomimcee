@@ -1,2 +1,2 @@
 # pandomimcee
-güzel cümleler
+güzel
